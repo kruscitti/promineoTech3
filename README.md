@@ -1,1 +1,0 @@
-# promineoTech3
